@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @GoneDog
-- 👀 I’m interested in ... Drones, Fabrication, Automated Systems, Miomimicry, Wilderness Emergency Medicine
+- 👀 I’m interested in ... Drones, Fabrication, Automated Systems, Biomimicry, Wilderness Emergency Medicine
 - 🌱 I’m currently learning ... ha, time management and follow-through. Probly never figure it out.
 - 💞️ I’m looking to collaborate on ... Industrial Design and UXI
 - 📫 How to reach me ... BlizzardMarsh.com
